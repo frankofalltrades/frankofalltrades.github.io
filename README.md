@@ -1,3 +1,3 @@
-## frankofalltrades.de
+## The website 'frank-stransky.de' (aka frankofalltrades)...
 
 ## ... is under construction
